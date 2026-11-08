@@ -1,2 +1,2 @@
 # site
-ignora essa coisa engracada
+ignora essa coisa engraçada
